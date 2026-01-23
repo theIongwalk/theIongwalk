@@ -19,4 +19,4 @@ Live laugh canmano
 
 ![](https://files.catbox.moe/cih1t4.gif)
 
-art credits: banner, me IC, Jordan Gonzalez umumum
+art credits: banner, me IC, sirsquingle
