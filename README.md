@@ -4,7 +4,7 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://files.catbox.moe/cc8pcu.png)
+![](https://files.catbox.moe/2pxn21.png)
 
 ![](https://pixels.crd.co/assets/images/gallery19/3c7b9ead.gif?v=29416114)  ; "Harkness would never write his book about the long walk. Harkness was being dragged off the road someplace up ahead like a grain bag, or was being tossed into a truck wrapped securely in a canvas body bag. For Harkness, the long walk was over." 
 
