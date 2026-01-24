@@ -6,9 +6,7 @@
 
 ![](https://files.catbox.moe/2pxn21.png)
 
-![](https://64.media.tumblr.com/c7f8d1fea1dbc05878a8f798910b0d2c/b09ec95f54356d29-08/s75x75_c1/127629de2dba130bc325e358cde7764ec58715dc.gifv)  ; "Harkness would never write his book about the long walk. Harkness was being dragged off the road someplace up ahead like a grain bag, or was being tossed into a truck wrapped securely in a canvas body bag. For Harkness, the long walk was over." 
-
-The Long Walk, pg. 129
+![](https://64.media.tumblr.com/c7f8d1fea1dbc05878a8f798910b0d2c/b09ec95f54356d29-08/s75x75_c1/127629de2dba130bc325e358cde7764ec58715dc.gifv)  ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of symptahy."
 
 ![](https://64.media.tumblr.com/a62f194cc6e829725043816db29b1791/8fa13d837b84c1f3-78/s100x200/90a1f485d9d06aa363c1750245a37877960cfea0.pnj) ![](https://64.media.tumblr.com/78e3342cba4dccbc9f978f3467c76eda/d707fae9335da723-04/s100x200/a229b5fddce4285ac80dc5155fe200c481538504.jpg) ![](https://files.catbox.moe/j0mu5i.png) ![](https://64.media.tumblr.com/c75217737317be52d06d431da7691e6e/87f8af90e7b7a0b4-c5/s100x200/bbf0ebac7bb52604bae0bc3236d1752b580c7dea.gifv) ![](https://64.media.tumblr.com/5caca228e140189cbafe851af9c8fdd1/03557b5a125cb7ec-a5/s100x200/73f5faf562f40d3a59f4194df4073ae8d6c11575.pnj) ![](https://64.media.tumblr.com/17446240291af4aa27c4cebf198a9fb1/8dca9ef2e191a162-5e/s100x200/2c1d2e3edc43badaa635e0a9264f0c7e3ec02405.gif) ![](https://64.media.tumblr.com/a8004500e4c2b15090014d036f86e2be/c167d9cc7e634732-42/s250x400/32b52d61843516569394ec84a79864ecaeca7e43.gifv) ![](https://adriansblinkiecollection.neocities.org/stamps/d41.gif)
 
