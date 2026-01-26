@@ -4,7 +4,7 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://files.catbox.moe/2pxn21.png)
+![](https://files.catbox.moe/yv9d9j.png)
 
 ![](https://64.media.tumblr.com/c7f8d1fea1dbc05878a8f798910b0d2c/b09ec95f54356d29-08/s75x75_c1/127629de2dba130bc325e358cde7764ec58715dc.gifv)  ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
 
@@ -21,4 +21,4 @@ Live laugh canmano
 
 ![](https://files.catbox.moe/cih1t4.gif)
 
-art credits: banner, me IC, sirsquingle
+art credits: banner, whalevoyager IC, sirsquingle
