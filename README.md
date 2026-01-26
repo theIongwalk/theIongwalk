@@ -9,11 +9,13 @@
 
 ![](https://64.media.tumblr.com/4067ea27ea3b2d0327b89453375d030f/88b685697c130c9e-f0/s75x75_c1/7bda3491f46d32d2e27c93784336d4c66daddb18.gifv) ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
 
+![](https://64.media.tumblr.com/7e72ace1e5a61967d1805526a2b01aa6/9f48f14516b0f9ba-04/s75x75_c1/c0d9994ad77e841c90a545cafe403072d7513207.gifv) ![](https://64.media.tumblr.com/9e20acb89de357306c3a3a6a43c40617/e5d2be417a1a67a0-7a/s75x75_c1/5b3f51c0a3fa774efe40edaf6a61ac60c98086f9.gifv) ![](https://64.media.tumblr.com/33939dc473beb29eea33941dc16108d7/f94cefb3e531a733-39/s75x75_c1/1a93f488be890b6f7e0c6fb2a826845c61388b83.gifv)
+
 i am very very lonely, and do not have many friends. i will never be upset with someone for sitting with me... in fact i would really like that!!! um please talk to me i have such bad social anxiety i would never reach out first i'm sorry,,,
 
 ![](https://64.media.tumblr.com/69f58d84b26d66383f037647c7ed644f/5cc8b4ce45dff763-e8/s400x600/c396c23492644ffb4877d4e9f404fb5e4a7dacaf.pnj)
 
-![](https://64.media.tumblr.com/08f47114fb334e3bf3312b220ef704f7/0bf5d187433b019b-c3/s100x200/439f9ed0d49027962b5d3a29281a3decf95a4aab.pnj) ![](https://64.media.tumblr.com/a0afc6c5f39121a67c7349ebf35c5937/cf83a1eb8feb3de0-b1/s75x75_c1/ad6827030900990219151e4b9fd5782afc36529b.gifv) ![](https://64.media.tumblr.com/aa06689d794b2fa790a72c67287bb1aa/1f29c314f6f59938-57/s100x200/1b1608021629d7173a24408dde639b4d2b1499a5.pnj)
+![](https://64.media.tumblr.com/08f47114fb334e3bf3312b220ef704f7/0bf5d187433b019b-c3/s100x200/439f9ed0d49027962b5d3a29281a3decf95a4aab.pnj) ![](https://64.media.tumblr.com/a0afc6c5f39121a67c7349ebf35c5937/cf83a1eb8feb3de0-b1/s75x75_c1/ad6827030900990219151e4b9fd5782afc36529b.gifv) ![](https://64.media.tumblr.com/aa06689d794b2fa790a72c67287bb1aa/1f29c314f6f59938-57/s100x200/1b1608021629d7173a24408dde639b4d2b1499a5.pnj) 
 
 ![](https://64.media.tumblr.com/b8676c960fb7813751e72aba343ec8e3/857d6c8a1e36e10c-00/s250x400/0641556ff73abad9d88c313f13b5b252854d6c1e.gifv) ![](https://64.media.tumblr.com/529cef070b8cad07a152a136b19cce3c/857d6c8a1e36e10c-71/s250x400/75844d84cdf35a0641173bfc27d1b4da70739d31.gifv) 
 
@@ -22,6 +24,8 @@ I LOVE canmano
 ![](https://64.media.tumblr.com/fae179270676453521151ba88276f374/4b4844296b6cd783-5f/s250x400/6be89901658b4f95e223afb80dadc63b3c73c89c.gifv)
 
 art credits: banner, whalevoyager IC, sirsquingle
+
+![](https://64.media.tumblr.com/06ab85f0ba9054e41946db81ff0f2beb/e55499bb132b2c51-55/s250x400/bfbd0aca6bb17e2bba2c73548c0ee3cecef90d9b.gifv)
 
 <details>
   <summary>Click 4 stamps + blinkies!</summary>
