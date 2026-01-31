@@ -4,7 +4,7 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://files.catbox.moe/yv9d9j.png)
+![](https://i.ibb.co/bMDDjfM7/ezgif-524e263dab340627.webp)
 
 
 ![](https://64.media.tumblr.com/4067ea27ea3b2d0327b89453375d030f/88b685697c130c9e-f0/s75x75_c1/7bda3491f46d32d2e27c93784336d4c66daddb18.gifv) ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
