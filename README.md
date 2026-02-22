@@ -1,19 +1,36 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=theIongwalk&color=8c9da9&abbreviated=true&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=theIongwalk&color=dca5ae&abbreviated=true&style=for-the-badge)
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=z3r9frkfhicg6k9gpgdk726tg&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://i.ibb.co/bMDDjfM7/ezgif-524e263dab340627.webp)
+<center>
+<div class="row no-gutters">
+<div class="col-md-6 col-4 p-1">
+<p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
+<img src="https://files.catbox.moe/ssybwi.png">
+</div>
+<div class="col-md-6 col-8 p-1">
+<p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
+<img src="https://adriansblinkiecollection.neocities.org/e93.gif">
+<img src="https://adriansblinkiecollection.neocities.org/g77.gif">
+<img src="https://adriansblinkiecollection.neocities.org/e65.gif">
+<img src="https://adriansblinkiecollection.neocities.org/g99.gif">
+<img src="https://adriansblinkiecollection.neocities.org/x38.gif">
+<img src="https://files.catbox.moe/kxaf54.gif">
+<img src="https://adriansblinkiecollection.neocities.org/u3.gif">
+</div>
+</div>
+<center>
+<img src="https://64.media.tumblr.com/3e2c9508d8df9528e4116c8a20e03b78/03557b5a125cb7ec-11/s100x200/8abf9478ace2d95005fc3c365883dee4fc644fdd.pnj" width="93px">
+<img src="https://files.catbox.moe/tz7ssj.png" width="93px">
+<img src="https://files.catbox.moe/dvrya0.jpeg" width="93px">
+<img src="https://64.media.tumblr.com/ba2d61550affd39f2ef2a5a2ccf7d412/c8a17f0aed5a5158-27/s100x200/759ac41a48d21fdfb756eac2b9f673f45990108d.pnj" width="93px">
+</center>
+<div style="border:2px solid transparent;padding-left:5px"><b><u>he/him ♡ 17 ♡ cst</u></b></div>
+<div style="font-size:14px;padding-left:5px;overflow:auto;height:100px">hi... i'm augustine i am very socially anxious and shy so i probably won't reach out to anyone, but i don't mind making friends. i am a digital artist who draws on animal jam and ibispaintx! i love hetalia and studio investigrave a lot. i am the real augustine orlov/srs i will instantly block doubles so y'all best dni please! call me delusional if you want i do not really gaf give a fuck lel.</div>
+<img src="https://64.media.tumblr.com/e41d50d08f5b19098a49aa66c2543e4f/4e2644e63302dee9-23/s2048x3072/ae82c34a4a435211b9113d676070b99d6d0eafb8.pnj">
 
-
-![](https://64.media.tumblr.com/4067ea27ea3b2d0327b89453375d030f/88b685697c130c9e-f0/s75x75_c1/7bda3491f46d32d2e27c93784336d4c66daddb18.gifv) ; "and i always fall flat on my back, like an upside-down cat! But is bad luck really such a crime? If you won't be my valentine, could you at least give me a little bit of sympathy."
-
-![](https://64.media.tumblr.com/7e72ace1e5a61967d1805526a2b01aa6/9f48f14516b0f9ba-04/s75x75_c1/c0d9994ad77e841c90a545cafe403072d7513207.gifv) ![](https://64.media.tumblr.com/9e20acb89de357306c3a3a6a43c40617/e5d2be417a1a67a0-7a/s75x75_c1/5b3f51c0a3fa774efe40edaf6a61ac60c98086f9.gifv) ![](https://64.media.tumblr.com/33939dc473beb29eea33941dc16108d7/f94cefb3e531a733-39/s75x75_c1/1a93f488be890b6f7e0c6fb2a826845c61388b83.gifv)
-
-i am very very lonely, and do not have many friends. i will never be upset with someone for sitting with me... in fact i would really like that!!! um please talk to me i have such bad social anxiety i would never reach out first i'm sorry,,,
-
-![](https://64.media.tumblr.com/69f58d84b26d66383f037647c7ed644f/5cc8b4ce45dff763-e8/s400x600/c396c23492644ffb4877d4e9f404fb5e4a7dacaf.pnj)
 
 ![](https://64.media.tumblr.com/08f47114fb334e3bf3312b220ef704f7/0bf5d187433b019b-c3/s100x200/439f9ed0d49027962b5d3a29281a3decf95a4aab.pnj) ![](https://64.media.tumblr.com/a0afc6c5f39121a67c7349ebf35c5937/cf83a1eb8feb3de0-b1/s75x75_c1/ad6827030900990219151e4b9fd5782afc36529b.gifv) ![](https://64.media.tumblr.com/aa06689d794b2fa790a72c67287bb1aa/1f29c314f6f59938-57/s100x200/1b1608021629d7173a24408dde639b4d2b1499a5.pnj) 
 
