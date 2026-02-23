@@ -8,7 +8,7 @@
 <div class="row no-gutters">
 <div class="col-md-6 col-4 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
-<img src="https://files.catbox.moe/ssybwi.png">
+<img src="https://i.ibb.co/fGYvZ48c/ezgif-8feeb94e4c962230.png">
 </div>
 <div class="col-md-6 col-8 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
@@ -30,6 +30,7 @@
 <div style="border:2px solid transparent;padding-left:5px"><b><u>he/him ♡ 17 ♡ cst</u></b></div>
 <div style="font-size:14px;padding-left:5px;overflow:auto;height:100px">hi... i'm augustine i am very socially anxious and shy so i probably won't reach out to anyone, but i don't mind making friends. i am a digital artist who draws on animal jam and ibispaintx! i love hetalia and studio investigrave a lot. i am the real augustine orlov/srs i will instantly block doubles so y'all best dni please! call me delusional if you want i do not really gaf give a fuck lel.</div>
 <img src="https://64.media.tumblr.com/e41d50d08f5b19098a49aa66c2543e4f/4e2644e63302dee9-23/s2048x3072/ae82c34a4a435211b9113d676070b99d6d0eafb8.pnj">
+
 
 
 
