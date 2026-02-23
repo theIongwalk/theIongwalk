@@ -9,6 +9,9 @@
 <div class="col-md-6 col-4 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
 <img src="https://i.ibb.co/fGYvZ48c/ezgif-8feeb94e4c962230.png">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=galmuri9&pause=1000&color=B8C4DE&center=true&width=435&separator=%3C&lines=;+%22An+honest+conversation...%22)](https://git.io/typing-svg)
+  
 </div>
 <div class="col-md-6 col-8 p-1">
 <p class="p-3" div style="width:190px;height:190px;border:2px solid #b980a2">
